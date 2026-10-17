@@ -1,4 +1,1 @@
-Greetings viewer 🙇🏽
-
-I'm Aditya. 
-Currently exploring the domain of cybersecurity🧑🏽‍💻 and also AI 🤖
+https://readme-typing-svg.demolab.com/demo/?size=18&color=F73704&background=1F94FF00&center=true&width=452&lines=Greetings+viewer+%F0%9F%99%87%F0%9F%8F%BD+;+I'm+Aditya+%F0%9F%99%8B%F0%9F%8F%BD%E2%80%8D%E2%99%82%EF%B8%8F;Rn+exploring+CyberSecurity%F0%9F%A7%91%F0%9F%8F%BD%E2%80%8D%F0%9F%92%BBAnd+AI+%F0%9F%A4%96
